@@ -1,7 +1,14 @@
 --------      
-картинка с шапкой профиля и ником      
+![VFeed — копия](https://github.com/EugeneIvanson/EugeneIvanson/assets/150911446/3da86f0c-15da-477e-945a-6fba61371f6d)
+
 --------      
-перечень ссылок на меня и тектовое описание разработок    
+Загляните в нашу группу помощи CDK - https://vk.com/warthundercdk          
+КАМУФЛЯЖИ можно скачать здесь  https://vk.com/album-201122944_289158171          
+Смотрите другие мои синематики и короткометражки в плейлисте: https://www.youtube.com/playlist?list=PLAFosjjC27GujTR7E51XUSUZGWVgTs6am          
+Группа канала в ВК https://vk.com/eugene.ivanson        
+ Наш дискорд  https://discord.gg/JXDHnYR        
+Ютуб канал https://www.youtube.com/eugeneivanson        
+
 --------    
 
 -------------------            
